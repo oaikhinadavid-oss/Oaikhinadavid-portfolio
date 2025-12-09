@@ -43,6 +43,9 @@ If you want to reach me, here are my contact details:
 - **GitHub:** https://github.com/Oaikhinadavid-oss
 
 ---
+my first shopping calculator 
+https://first-app--oaikhinadavid.replit.app
+you can check the link 
 
 Thanks for visiting my portfolio!  
 More exciting projects are coming soon.
