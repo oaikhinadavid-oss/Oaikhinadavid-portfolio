@@ -43,10 +43,17 @@ If you want to reach me, here are my contact details:
 - **GitHub:** https://github.com/Oaikhinadavid-oss
 
 ---
-here are some of the web app i have created 
+i have created some shopping calculator here are the links below 
 https://sites.google.com/view/branded-calculator-123/home
 https://sites.google.com/view/professional-calculator-123/home
 https://sites.google.com/view/small-business-23/home
+
+
+
+i have also created An AI and the name of the AI is DAVA
+here is the link below 
+https://poe.com/DAVA-5.0
+
 
 Thanks for visiting my portfolio!  
 More exciting projects are coming soon.
