@@ -53,6 +53,8 @@ https://sites.google.com/view/small-business-23/home
 i have also created An AI and the name of the AI is DAVA
 here is the link below 
 https://poe.com/DAVA-5.0
+here is also the picture of the AI app.
+Screenshot_20251225-154724.png
 
 
 Thanks for visiting my portfolio!  
